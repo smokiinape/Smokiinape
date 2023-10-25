@@ -1,4 +1,4 @@
-![MasterHead](https://media.giphy.com/media/8vIFoKU8s4m4CBqCao/giphy.gif)
+![MasterHead](https://i.redd.it/mff2ndx01g4b1.jpg)
 
 
 <h1 align="center">Hi 👋, I'm Aman Said</h1>
