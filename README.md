@@ -6,7 +6,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=smokiinape&label=Profile%20views&color=0e75b6&style=flat" alt="smokiinape" /> </p>
 
-- ⚡ Fun fact **45an is my friend and enemy**
+- ⚡ Fun fact **Skilled in handling unexpected situations**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
